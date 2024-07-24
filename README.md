@@ -1,3 +1,5 @@
+**Read full business plan here: https://docs.google.com/document/d/15hxoLbUeY06hH5rjfDzZ8Wv33mQo1pk9ZqXVW9gS8aQ/edit?usp=sharing**
+
 <p align="center">
   <img width="650" alt="Screenshot 2024-07-24 at 4 57 11 PM" src="https://github.com/user-attachments/assets/1327f25d-7842-4724-94cb-7bf20fbd9c23">
 </p>
